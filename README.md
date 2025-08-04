@@ -22,3 +22,9 @@ then after shabad kirtan we all stand prayed to god for our good college then we
 - Dr Arashedeep singh from Punjab Agricultural university give us a lecture on food importance in students life he told us that us we should take health and adequate diet that should help up us to keep our energy levels up and we should not consume those food which are body cannot digest and he also busted some popular food myths
 [img](https://photos.app.goo.gl/GBMbiPET2d146MCF8) 
  
+### End of Day 2
+
+# Day 3
+[img](https://photos.app.goo.gl/5jV6bD2x7KjrfKfW7)
+1. **Lecture by Dr Jasvinder** (9:00 to 11:00 am)
+- We Kick started our third day with lecture on science and Math conducted by Dr jaswinder singh . he begin the lecture with congratulating us on getting admitted to such prestigious college of punjab. then he talked about how everything is created by the god and we all should pray to almighty got then he told us how mathematics is connected to everything in this world by giving us few examples like how is tea made we measure things then add then that is mathematics, mixing of reagents etc then he demonstrated the functioning of waves through straw and tape structure then he told us about relation between ik and god . then he asked us to be respectful,obident to our parent and teachers .then till the end of session he told us many tricks of Math.
