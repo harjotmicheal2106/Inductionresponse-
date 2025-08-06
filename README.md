@@ -31,6 +31,10 @@ then after shabad kirtan we all stand prayed to god for our good college then we
 
 [img](https://photos.app.goo.gl/mLMW3buj2exxjcjB6)
 2. **Lecture on UHV** : (11:00 to 1:00)
-- the second lecture on our third day was on Universal human values given by Dr Priya Darshni she taught us the importance about right balance of material needs , relationship, Right understanding and she told us that we should not force ourselves on thinking that we will achieve everything after we reach our goal but that's not true we should be happy and prosperous along the path to our growth she also said we should give time to those that make us happy and the end of lecture she gave us a assignment in which we had to write down the name and amount of time spend on that thing and reflect on it after you see how you spend your time 
-  
+- the second lecture on our third day was on Universal human values given by Dr Priya Darshni she taught us the importance about right balance of material needs , relationship, Right understanding and she told us that we should not force ourselves on thinking that we will achieve everything after we reach our goal but that's not true we should be happy and prosperous along the path to our growth she also said we should give time to those that make us happy and the end of lecture she gave us a assignment in which we had to write down the name and amount of time spend on that thing and reflect on it after you see how you spend your time.
+## End of day 3
+# Day 4
+1. English lecture: (9:30 to 10:30 )
+- the first lecture of our fourth day was english communication taken by professor Aastik Sharma. In the beginning of lecture he given us four questions 3 verbal question in which we have to introduce ourselves , why we choose this college and branch and last question is tell about your weakness and strengths. he given us ten minutes to prepare these questions then after ten minutes he picked some students randomly asked them about answers and the fourth questions was a letter then after the test he explained to us the importance of body language and communication skills as a person who has knowledge but doesn't know how to explain to others then his knowledge is waste.
+
   
