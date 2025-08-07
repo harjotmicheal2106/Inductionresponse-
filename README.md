@@ -42,5 +42,5 @@ then after shabad kirtan we all stand prayed to god for our good college then we
 - this was our second lecture on universal human values taken by  Dr priya darshini in this session man made provide us some adivce to implemt in our life so that we can make our life better.
 4. **Causmic club** : ( 2:30 to 3:30 ) 
 - during this time our senior introduce us to variou clubs in college like causmic club, cultural committe etc one of our seniors also performed guitar for us. one one told us shayari and also showed us some works of causmic club like reels and fest organised by causmic club like apex,youth parliament etc and told us annual function is organized by cultural committe .
-  30 to 2:30 this was our second lecture on universal human values taken by Dr priya darshini
+## End of day 4
 
