@@ -36,5 +36,11 @@ then after shabad kirtan we all stand prayed to god for our good college then we
 # Day 4
 1. English lecture: (9:30 to 10:30 )
 - the first lecture of our fourth day was english communication taken by professor Aastik Sharma. In the beginning of lecture he given us four questions 3 verbal question in which we have to introduce ourselves , why we choose this college and branch and last question is tell about your weakness and strengths. he given us ten minutes to prepare these questions then after ten minutes he picked some students randomly asked them about answers and the fourth questions was a letter then after the test he explained to us the importance of body language and communication skills as a person who has knowledge but doesn't know how to explain to others then his knowledge is waste.
+2. **CHEMISTRY LECTURE**; ( 10:30 TO 11:30 )
+- This lecturewas taken by professor karan bhalla he is very open minded and friendly when he entered the class he greeted us politely after that he introduced himself then he asked all us about our goals and aspirations. then he told us about  mid semester test and waitage of chemistry and about lab pratical and viva
+3. **Universal human values** : (12:30 to 2:30 )
+- this was our second lecture on universal human values taken by  Dr priya darshini in this session man made provide us some adivce to implemt in our life so that we can make our life better.
+4. **Causmic club** : ( 2:30 to 3:30 ) 
+- during this time our senior introduce us to variou clubs in college like causmic club, cultural committe etc one of our seniors also performed guitar for us. one one told us shayari and also showed us some works of causmic club like reels and fest organised by causmic club like apex,youth parliament etc and told us annual function is organized by cultural committe .
+  30 to 2:30 this was our second lecture on universal human values taken by Dr priya darshini
 
-  
